@@ -1,3 +1,3 @@
 # demencia
 
-# slk fml mo paz
+slk fml mo paz
